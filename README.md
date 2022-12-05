@@ -7,4 +7,5 @@ Thank you for checking out my profile here, hope you can find a lot of usefull s
 📬 Want to get in touch with me? Give me a shout at *jobs@kryvych.cc* 
 
 Thanks for stiking around for so long to read the whole thing, stay awesome ✌️
+
 Max ❤️
